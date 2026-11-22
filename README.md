@@ -1,2 +1,1 @@
 # b-practiceA ����̒�Ăł�
-add
